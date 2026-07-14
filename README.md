@@ -99,7 +99,7 @@ Seeking an opportunity as a Software Engineer where I can apply my technical ski
 
 🐙 GitHub: https://github.com/JANUMPALLYHIMABINDU
 
-💼 LinkedIn: *(Add your LinkedIn profile link here)*
+💼 LinkedIn: www.linkedin.com/in/janumpally-himabindu-2a30793ab
 
 ---
 
